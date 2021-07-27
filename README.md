@@ -1,1 +1,1 @@
-# Prime-Sholars-Academy
+#sethi academy
